@@ -5,6 +5,6 @@
 - 👯 I’m looking to collaborate on 👀
 - 🤔 I’m looking for help with 👀
 - 💬 Ask me about anything
-- 📫 How to reach me: [@_amos_aidoo_](https://twitter.com/_amos_aidoo_)
+- 📫 How to reach me: [@\_amos_aidoo\_](https://twitter.com/_amos_aidoo_)
 - 😄 Pronouns: him/he
 - ⚡ Fun fact: 🥴
